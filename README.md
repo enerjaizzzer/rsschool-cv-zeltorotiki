@@ -1,1 +1,1 @@
-# rsschool-cv-zeltorotiki
+https://enerjaizzzer.github.io/rsschool-cv/cv
